@@ -16,4 +16,4 @@ Am Anfang schien es sehr schwer, das Monster zu besiegen, denn aus seinen Hände
 
 Markus wollte aber nicht aufgeben, besonders weil er schon so nah am Ziel war. Deswegen kämpfte er mit all seiner Kraft weiter. Nach ein paar Sekunden reichte diese Motivation aber nicht mehr aus. Zum Glück lief ein alter Freund von ihm vorbei und half dem Helden.
 
-Das war knapp.
+Das war knapp. Zusammen konnten sie das Monster endlich besiegen, obwohl beide sehr erschöpft waren. Direkt nach dem Kampf merkte Markus aber schon wieder, dass er Hunger hatte. Danach schaute er sich langsam im Raum um, weil das Amulett irgendwo dort versteckt sein musste.
